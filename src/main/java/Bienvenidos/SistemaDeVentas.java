@@ -1,5 +1,5 @@
 
-package pe.com.bryan.sistema.de.ventas;
+package Bienvenidos;
 
 import javax.swing.JOptionPane;
 
