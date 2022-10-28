@@ -134,7 +134,7 @@ LISTO!!!! YA PODEMOS TRABAJAR JUNTOS
 
 1.- Raul Elias Caamal
 
-2.- 
+2.- Elvis Remaycuna Pariahuache
 
 3.-
 
