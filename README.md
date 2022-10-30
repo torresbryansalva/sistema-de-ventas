@@ -136,7 +136,7 @@ LISTO!!!! YA PODEMOS TRABAJAR JUNTOS
 
 2.- Elvis Remaycuna Pariahuache
 
-3.-
+3.- Hector Ajumado Mondocorre
 
 4.-
 
