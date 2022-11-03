@@ -138,7 +138,7 @@ LISTO!!!! YA PODEMOS TRABAJAR JUNTOS
 
 3.- Hector Ajumado Mondocorre
 
-4.-
+4.- Sergio Ivan Conde Ortiz
 
 5.-
 
