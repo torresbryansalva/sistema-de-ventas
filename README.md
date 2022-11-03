@@ -140,6 +140,6 @@ LISTO!!!! YA PODEMOS TRABAJAR JUNTOS
 
 4.- Fernando Jose Duarte
 
-5.- 
+5.- Sergio Ivan Conde Ortiz
 
 6.-
